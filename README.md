@@ -1,2 +1,0 @@
-# Wallpapers
-My wallpaper pack
